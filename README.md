@@ -1,7 +1,7 @@
 - 👋 Hai, Aku @sera359 dari Indonesia                         | Hi, I’m @sera359 from Indonesia
 - 👀 Aku sangat tertarik pada seni                            | I’m interested in arts
 - 🌱 Saat ini aku sedang mempelajari animasi dan score musik  | I’m currently learning animation and musical score
-- 💞️ Aku ingin berkolaborasi pada projek animasi              | I’m looking to collaborate on animation project
+- 💞️ Aku ingin berkolaborasi dalam projek animasi              | I’m looking to collaborate on animation project
 - 📫 Cara terhubung denganku                                  | How to reach me ;
                                             - https://www.instagram.com/yusera359/
                                              - https://twitter.com/yusera359
